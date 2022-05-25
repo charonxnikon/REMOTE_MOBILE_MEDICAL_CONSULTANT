@@ -1,2 +1,2 @@
-# remote_moblie_medical_consulnat
+# REMOTE MONILE MEDICAL CONSULTANT
 Демонстрация: https://clck.ru/iXPDr 
